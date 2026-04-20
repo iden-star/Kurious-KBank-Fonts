@@ -1,1 +1,1 @@
-# Kurious-KBank-Fonts
+# Kurious-KBank-Fonts (For general, Non-commercial use.)
